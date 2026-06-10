@@ -1,6 +1,6 @@
 # GungunGoyal0511
 
-# Hi, I'm Gunjan Goyal 👋
+# Hi, I'm Gungun Goyal 👋
 
 🎓 Computer Science Engineer
 
