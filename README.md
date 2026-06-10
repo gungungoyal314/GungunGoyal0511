@@ -16,4 +16,4 @@
 - Synthetic Health Lifestyle Prediction
 
 📫 Connect with me:
-LinkedIn: your-linkedin-link
+LinkedIn: Gungun Goyal
